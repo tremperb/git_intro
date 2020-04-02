@@ -1,1 +1,2 @@
 Brayden Tremper
+tremperb@oregonstate.edu
